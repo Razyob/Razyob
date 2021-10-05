@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Razyob
 - 👀 I’m interested in Razyebatelstvo
-- 🌱 I’m currently learning Maximun Razyob
+- 🌱 I’m currently learning Maximum Razyob
